@@ -1,0 +1,2 @@
+# Strukturdata
+Apa sajaa
